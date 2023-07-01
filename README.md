@@ -3,7 +3,7 @@
 
 - 📫 How to reach me : **fd.faraji@gmail.com**
 
-- 📄 Know about my experiences : [LinkedIn](https://www.linkedin.com/in/farshid-faraji-a5130413b/)
+- 📄 Know about my experiences : [LinkedIn](https://www.linkedin.com/in/farshid-faraji-410382260/)
 
 - ☕ If you wanted to buy me a coffee : [CoffeeBede](https://www.coffeebede.com/farshidfaraji)
 
